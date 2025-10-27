@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing yet
 - 💞️ I’m looking to collaborate on making a neat ai
 - 📫 How to reach me send me an email at legosfan34@gmail.com
-- 😄 Pronouns: he/him
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: is a minor
 
 <!---
